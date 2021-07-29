@@ -1,1 +1,0 @@
-# data_approach_to_olympic_games
